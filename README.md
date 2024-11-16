@@ -1,2 +1,2 @@
 # RupamIslam
-Avoy Jana
+https://avoyjana.github.io/RupamIslam/
